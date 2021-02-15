@@ -1,0 +1,1 @@
+"# technikal_magazines" 
